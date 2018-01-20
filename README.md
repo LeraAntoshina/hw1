@@ -23,4 +23,9 @@
 
    ![картинка](http://uznamania.ru/uploads/photoset/_tmp/0u15babf29-97f5e660-6174de61.jpg-682x682-pad.jpg "Зверозавр")
    
-   
+## Моя контактная информация
+
+ * Моя Инста [krasnyanchuk_l](https://www.instagram.com/krasnyanchuk_l/)  
+ * Моя почта <vrantoshina@edu.hse.ru>
+
+
